@@ -3,4 +3,8 @@
 
 **Juan Antonio Gomez Gomez**
 ***2ºSMX***
-:+1
+:+1:
+
+https://aules.edu.gva.es/fp/pluginfile.php/12241163/mod_resource/content/2/DASP_UT1_Resumen.pdf
+
+https://aules.edu.gva.es/fp/mod/url/view.php?id=9423514
